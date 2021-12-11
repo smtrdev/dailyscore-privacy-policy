@@ -1,0 +1,1 @@
+# dailyscore-privacy-policy
